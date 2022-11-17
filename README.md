@@ -1,0 +1,1 @@
+# scamworld.github.io
