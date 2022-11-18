@@ -1,1 +1,1 @@
-# scamworld.github.io
+# Бета-Версия Сайта Scam World
